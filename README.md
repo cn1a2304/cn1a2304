@@ -1,4 +1,4 @@
-### Hi there 👋
+### *Eduardo cezar*👋
 
 <!--
 **cn1a2304/cn1a2304** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -13,4 +13,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+-->sou aluno do 1ano A
+do colegio Custodio Netto
