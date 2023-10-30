@@ -15,4 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->sou aluno do 1ano A
 do colegio Civico Militar Professor Custodio Netto tenho 16 anos 
+sou alto gosto de jogar video game ou mecher no pc gosto tbm de mecher com coisas eletronicas e eletrica
 
