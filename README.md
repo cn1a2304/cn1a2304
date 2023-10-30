@@ -1,4 +1,4 @@
-### *Eduardo Cezar* 
+### *Eduardo Cezar* 👍
 - bem vindo ao meu perfil
 
 - sou aluno do 1ano A
