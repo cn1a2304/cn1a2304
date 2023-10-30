@@ -14,4 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->sou aluno do 1ano A
-do colegio Custodio Netto
+do colegio Civico Militar Professor Custodio Netto tenho 16 anos 
+
