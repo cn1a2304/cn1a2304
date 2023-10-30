@@ -13,7 +13,17 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->sou aluno do 1ano A
-do colegio Civico Militar Professor Custodio Netto tenho 16 anos 
-sou alto gosto de jogar video game ou mecher no pc gosto tbm de mecher com coisas eletronicas e eletrica
+- bem vindo ao meu perfil
+
+--> sou aluno do 1ano A
+
+- no  colegio Civico Militar Professor Custodio Netto
+
+- tenho 16 anos 
+
+-sou alto
+
+-gosto de jogar video game ou mecher no pc -
+
+gosto tbm de mecher com coisas eletronicas e eletrica
 
