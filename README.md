@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 - bem vindo ao meu perfil
 
---> sou aluno do 1ano A
+- sou aluno do 1ano A
 
 - no  colegio Civico Militar Professor Custodio Netto
 
@@ -25,5 +25,4 @@ Here are some ideas to get you started:
 
 -gosto de jogar video game ou mecher no pc -
 
-gosto tbm de mecher com coisas eletronicas e eletrica
-
+-gosto tbm de mecher com coisas eletronicas
